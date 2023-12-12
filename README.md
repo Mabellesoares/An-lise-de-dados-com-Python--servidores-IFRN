@@ -8,4 +8,4 @@ Questões:
 4. Principais funções exercidas pelo gênero feminino
 5. Proporção em cargos de chefia
    
-As perguntas foram respondidas a nível local (Campus Apodi) e a nível estadual 9RN)
+As perguntas foram respondidas a nível local (Campus Apodi) e a nível estadual (RN)
